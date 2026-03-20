@@ -1,1 +1,1 @@
-Your Full Name — USD MS Cybersecurity Engineering
+Gopa P. Burkul — USD MS Cybersecurity Engineering
